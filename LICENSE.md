@@ -1,4 +1,4 @@
-
+shrink for brainrots Script elite is the best shrink for brainrots Script, featuring auto-upgrade and unlimited stamina. Safe and powerful for all
 
 
 
